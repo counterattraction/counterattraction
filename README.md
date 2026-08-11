@@ -1,10 +1,10 @@
 ![Image](https://github.com/user-attachments/assets/aec3a7f5-f403-46a6-9145-c64fb5d0694c)
 
 <div align="center"
-  
-░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░
 
-**1# PRFM cosplayer on PT!**
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+𓏲⋆ ִֶָ 𓂃 ⋆**1# PRFM cosplayer on PT!**
 
 ⿻ **𝐀ll abt me:**
 
@@ -25,6 +25,8 @@
 Ꮺ.**i LOVE niche vocaloid producers, for example: Conslo and Lemm**
 
 Ꮺ.**i dont rlly mind if you copy my pony style, it changes like every single week (just DON'T copy my PONIES)**
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 <div align="center"
 
