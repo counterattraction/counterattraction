@@ -6,17 +6,19 @@
 
 1# PRFM cosplayer on PT!
 
-⿻𝒜bt me:
+⿻ 𝐀ll abt me:
 
 Ꮺ.𝓜inor
 
-Ꮺ.𝒜lmondsexual
+Ꮺ.𝐀lmondsexual
 
 Ꮺ.𝒞iswoman
 
 Ꮺ.𝒩occhi oshi
 
-Ꮺ.𝒯R🇹🇷(PLEASE int if you're a turkish prfm stan)
+Ꮺ.𝑇R🇹🇷(PLEASE int if you're a turkish prfm stan)
+
+Ꮺ.𝑭andoms: proseka, vocaloid, perfume, osc, vib-ribbon, ptr, ujl, phantom siita, ado, k-on!
 
 <div align="center"
 
