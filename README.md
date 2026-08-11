@@ -29,6 +29,8 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 ![Image](https://github.com/user-attachments/assets/ec0a3cbd-25e6-4046-81fa-108f11d5f783)
 
+</div>
+
 ![Gif](https://github.com/user-attachments/assets/0759e206-8c1c-4a11-935c-978d947197ee)
 ![Gif](https://github.com/user-attachments/assets/feb57090-6b39-450a-866b-68acee3982c8)
 ![gif](https://github.com/user-attachments/assets/651b75df-f914-4ed6-a159-c3264644953d)
