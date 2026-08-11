@@ -4,23 +4,27 @@
   
 ░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░░
 
-1# PRFM cosplayer on PT!
+**1# PRFM cosplayer on PT!**
 
-⿻ 𝐀ll abt me:
+⿻ **𝐀ll abt me:**
 
-Ꮺ.𝓜inor
+Ꮺ.**𝓜inor**
 
-Ꮺ.𝐀lmondsexual
+Ꮺ.**𝐀lmondsexual**
 
-Ꮺ.𝒞iswoman
+Ꮺ.**𝒞iswoman**
 
-Ꮺ.𝒩occhi oshi
+Ꮺ.**𝒩occhi oshi**
 
-Ꮺ.𝑇R🇹🇷(PLEASE int if you're a turkish prfm stan)
+Ꮺ.**𝑇R🇹🇷(PLEASE int if you're a turkish prfm stan)**
 
-Ꮺ.𝑭andoms: proseka, vocaloid, perfume, osc, vib-ribbon, ptr, ujl, phantom siita, ado, k-on!
+Ꮺ.**𝑭andoms: proseka, vocaloid, perfume, osc, vib-ribbon, ptr, ujl, phantom siita, ado, k-on!**
 
-Ꮺ.𝐀rtist ( check my pinterest if you're interested ! )
+Ꮺ.**𝐀rtist ( check my pinterest if you're interested ! )**
+
+Ꮺ.**i LOVE niche vocaloid producers, for example: Conslo and Lemm**
+
+Ꮺ.**i dont rlly mind if you copy my pony style, it changes like every single week (just DON'T copy my PONIES)**
 
 <div align="center"
 
