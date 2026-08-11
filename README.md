@@ -24,7 +24,7 @@
 
 Ꮺ.**i LOVE niche vocaloid producers, for example: Conslo and Lemm**
 
-Ꮺ.**i dont rlly mind if you copy my pony style, it changes like every single week (just DON'T copy my PONIES)**
+Ꮺ.**i dont rlly mind if you copy my pony style, it changes like every single week. just DON'T copy my PONIES(unless if we're close friends)**
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 ![Image](https://github.com/user-attachments/assets/ec0a3cbd-25e6-4046-81fa-108f11d5f783)
