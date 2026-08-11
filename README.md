@@ -27,7 +27,6 @@
 Ꮺ.**i dont rlly mind if you copy my pony style, it changes like every single week (just DON'T copy my PONIES)**
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-<div align="center"
-
 ![Image](https://github.com/user-attachments/assets/ec0a3cbd-25e6-4046-81fa-108f11d5f783)
+
+![Gif](https://github.com/user-attachments/assets/0759e206-8c1c-4a11-935c-978d947197ee)
