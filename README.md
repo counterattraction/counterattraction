@@ -18,7 +18,7 @@
 
 Ꮺ.**𝑇R🇹🇷(PLEASE int if you're a turkish prfm stan)**
 
-Ꮺ.**𝑭andoms: proseka, vocaloid, perfume, osc, vib-ribbon, ptr, ujl, phantom siita, ado, k-on!**
+Ꮺ.**𝑭andoms: proseka, vocaloid, perfume, osc, vib-ribbon, ptr, ujl, phantom siita, ado, k-on!, DDLC**
 
 Ꮺ.**𝐀rtist ( check my pinterest if you're interested ! )**
 
