@@ -29,7 +29,7 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 ![Image](https://github.com/user-attachments/assets/ec0a3cbd-25e6-4046-81fa-108f11d5f783)
 
-</div>
+</divide>
 
 ![Gif](https://github.com/user-attachments/assets/0759e206-8c1c-4a11-935c-978d947197ee)
 ![Gif](https://github.com/user-attachments/assets/feb57090-6b39-450a-866b-68acee3982c8)
@@ -39,4 +39,7 @@
 ![gif](https://github.com/user-attachments/assets/e60eb819-0a58-49ca-ac21-cf030b20d226)
 ![gif](https://github.com/user-attachments/assets/6255c8d5-7474-4551-8120-030fa56014eb)
 ![gif](https://github.com/user-attachments/assets/f472f511-ac05-4ff5-837f-77193608af71)
-![strawpage i made 20 seconds ago](https://counterattraction.straw.page)
+
+</div align="center"
+
+  ![strawpage i made 20 seconds ago](https://counterattraction.straw.page)
