@@ -39,7 +39,3 @@
 ![gif](https://github.com/user-attachments/assets/e60eb819-0a58-49ca-ac21-cf030b20d226)
 ![gif](https://github.com/user-attachments/assets/6255c8d5-7474-4551-8120-030fa56014eb)
 ![gif](https://github.com/user-attachments/assets/f472f511-ac05-4ff5-837f-77193608af71)
-
-</div align="center"
-
-  ![strawpage i made 20 seconds ago](https://counterattraction.straw.page)
