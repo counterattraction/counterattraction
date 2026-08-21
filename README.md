@@ -12,8 +12,6 @@
 
 Ꮺ.**𝐀lmondsexual**
 
-Ꮺ.**𝒞iswoman**
-
 Ꮺ.**𝒩occhi oshi**
 
 Ꮺ.**𝑇R🇹🇷(PLEASE int if you're a turkish prfm stan)**
